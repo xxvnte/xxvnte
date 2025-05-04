@@ -1,4 +1,4 @@
-![gengardance2](https://github.com/user-attachments/assets/919f53d6-91aa-4174-aed6-8430c147fece)
+![Uploading gengardance.gif…]()
 
 <!--
 **xxvnte/xxvnte** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
