@@ -1,4 +1,4 @@
-![gatobanio](https://github.com/user-attachments/assets/ca27d9ac-0bc9-4936-bced-2e83f4481900)
+![gatobanio2](https://github.com/user-attachments/assets/b599b95e-b499-45db-86de-386ce26dddd8)
 
 
 <!--
