@@ -1,7 +1,5 @@
 ![gatobanio2](https://github.com/user-attachments/assets/b599b95e-b499-45db-86de-386ce26dddd8)
 
-email: vicente.leivabj@gmail.com
-
 <!--
 **xxvnte/xxvnte** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
